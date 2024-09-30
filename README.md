@@ -1,2 +1,3 @@
-HI
-DUDE
+wtf was this readme
+like ngl
+i was sleepy when i wrote this...
